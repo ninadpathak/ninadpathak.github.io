@@ -1,1 +1,1 @@
-# ninadpathak.github.io
+# Ninad Pathak - Technical Content Creator
